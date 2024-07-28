@@ -1,2 +1,2 @@
 # 👋 Hi, I’m @stealthtechnoid
-## I help people to trive in theier digital journey with eCommerce solutions.
+## I empower enterprises to excel in their digital journey through innovative eCommerce solutions.
